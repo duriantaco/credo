@@ -17,6 +17,7 @@ In social dating, this question becomes even more glaring. WE are judged by poli
 ### The Anatomy Of Dating
 Social dating starts with thousands of people, lined up in cards, waiting to be accepted or rejected. A message opens a door into another person's world. After the exchange of words, the individuals move past the surface of a profile and into the real world. Do not forget though, you are just one of the plenty choices that both parties have, specially curated by the algorithms. Our freedom and choice of free will might not be as free as it seems. And this is where the problem starts to rear its ugly head. 
 
+---
 
 ### Endless Choices For The Top: The Burden
 Social dating drown us in options. Hundreds of potential matches, infinite scrolls and chasing the high of a new potential match. The problem here is two-fold. For the top 10% and the bottom 90%. Let's explore the top 10% first and we'll explore the latter. The top 10% are spoiled for choice. The freedom of choice creates a problem. Too much choice can paralyze us. This is the **paradox of choice**, a modern echo of **Jean-Paul Sartre’s** existential burden. Sartre saw freedom as both a gift and a curse; with every option comes the weight of deciding, and the fear we’ve chosen wrong. We are always chasing the idea of the perfect person because social media has wired us to do so. 
@@ -43,3 +44,5 @@ Zoom out, and it’s an existential crisis. **Existentialism** says we’re free
 The first step is awareness: recognizing that the shadows on the cave wall are not reality. We can choose to step into the light. This means resisting the algorithms, embracing yourself and the individual, putting in the effort and creating deeper conversations. It means prioritizing real-world connections over digital ones, where love can’t be reduced to a profile.
 
 In the end, love is not a product to consume but a practice to cultivate. A relationship is often messy, imperfect, and profoundly human. Dating should not just be about you, but the opposite party as well. By stepping away from the shadows, we can rediscover what it means to love—and be loved.
+
+oha
